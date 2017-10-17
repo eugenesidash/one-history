@@ -1,1 +1,0 @@
-# eugenesidash.github.io
